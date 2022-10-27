@@ -1,1 +1,1 @@
-# Minha receita de Lasanha de Frango
+# Nossa receita de Lasanha de Frango
